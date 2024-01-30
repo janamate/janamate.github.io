@@ -1,1 +1,0 @@
-# janamate.github.io
